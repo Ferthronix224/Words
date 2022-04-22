@@ -18,7 +18,7 @@
 4. How to sort birthdays (dates) by month in Excel quickly? -> ¿Cómo ordenar los cumpleaños (fechas) por mes en Excel rápidamente?
 5.  Yeah, real is a sort of relative term around here. -> Sí, real es una especie de término relativo por aquí.
 
-# Dooom  
+# Doom  
 
 ## Meanings - La muerte - Condenar - Fatalidad - Desgracia
 
