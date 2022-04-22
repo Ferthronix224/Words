@@ -17,3 +17,13 @@
 3. But this sort of cooperation has to be a partnership. -> Pero esta especie de cooperación tiene que ser una asociación.
 4. How to sort birthdays (dates) by month in Excel quickly? -> ¿Cómo ordenar los cumpleaños (fechas) por mes en Excel rápidamente?
 5.  Yeah, real is a sort of relative term around here. -> Sí, real es una especie de término relativo por aquí.
+
+# Dooom  
+
+## Meanings - La muerte - Condenar - Fatalidad - Desgracia
+
+1. She said he was my destiny and my doom. -> Ella dijo que él era mi destino y mi condena.
+2. But he and the other prophets of doom were wrong. -> Pero este y otros profetas de la fatalidad estaban equivocados.
+3. You are the key, the right hand of doom. -> Tú eres la llave, la mano derecha de la muerte.
+4. And she said the comet is a sign of impending doom. -> Y ella dijo que el cometa es un signo de muerte inminente.
+5. So, what do you know of the doom awaiting this planet? -> ¿Qué saben de la desgracia que aguarda a este planeta?
